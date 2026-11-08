@@ -1,2 +1,0 @@
-# Profile
-Community Profile
